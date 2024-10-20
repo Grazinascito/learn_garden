@@ -14,9 +14,9 @@ Normalmente, a gente procura "aparecer" quando somos requisitados ou quando quer
 
 ![tulla culpada](./content/images/dfeb85f3a6d8d372f79610919a5a54be.gif)
 
-Isso não é por uma autoavaliação honesta da nossa consciência, mas sim pelo ego que, como diria Jean-Paul Sartre™️, é um objeto perdido no mundo, assim como os "outros" que nos atravessam. Ou seja, nosso ego avalia nosso próprio trabalho tão rigorosamente quanto um crítico de cinema(nisso esse filho da puta é bom), e dependendo do nosso humor (😂), pode ser mais duro que [sei lá, só pense em algo duro 🫣]. 
+Isso não é por uma autoavaliação honesta da nossa consciência, mas sim pelo ego que, como diria Jean-Paul Sartre™️, é um objeto perdido no mundo, assim como os "outros" que nos atravessam. Ou seja, nosso ego avalia nosso próprio trabalho tão rigorosamente quanto um crítico de cinema(nisso esse filho da puta é bom), e dependendo do nosso humor (😂), pode ser mais duro que [sei lá, só pense em algo duro 🫣].
 
-Outra coisa, eu escrevo no Twitter não na intenção de viralizar ou criar um perfil "influencer", e sim para colocar para fora pensamentos (intrusivos💭).  Notei que faço isso diariamente, sendo assim, então faz sentido se eu criar o mesmo mindset para os meus estudos, meu dia, meu trabalho? Why not? 🤰
+Outra coisa, eu escrevo no Twitter não na intenção de viralizar ou criar um perfil "influencer", e sim para colocar para fora pensamentos (intrusivos💭). Notei que faço isso diariamente, sendo assim, então faz sentido se eu criar o mesmo mindset para os meus estudos, meu dia, meu trabalho? Why not? 🤰
 
 ![tulla em festa](./content/images/_poaHi.gif)
 
